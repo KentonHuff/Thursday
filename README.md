@@ -1,2 +1,2 @@
 # Thursday
-Not Friday
+ot Friday
